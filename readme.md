@@ -1,2 +1,5 @@
 pierwsza zmiana w plikus
-druga zmianas
+
+to jest druga zmiana
+
+cos trzeciego
