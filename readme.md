@@ -10,3 +10,5 @@ tekst2
 
 tekst3
 ## Referencje
+
+## cwiczenie mergowania
