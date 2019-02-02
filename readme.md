@@ -4,4 +4,6 @@
 
 ## TODO
 
+tekst
+
 ## Referencje
