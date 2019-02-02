@@ -2,4 +2,12 @@
 
 ## Spec
 
+## TODO
+
+tekst
+
+tekst2
+
+tekst3
+
 ## Referencje
