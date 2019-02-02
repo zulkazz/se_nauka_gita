@@ -1,3 +1,8 @@
 wszystko zostalo zmiemopne
 
-dodaje kolejny stuff
+dgregrdfgrgfrfdcbdshjfhjdsgfhjdsgfhjdgfhjsgjfs
+
+gfdgggggfd
+gdfgdfgd
+gfdgfdgdf
+gd
